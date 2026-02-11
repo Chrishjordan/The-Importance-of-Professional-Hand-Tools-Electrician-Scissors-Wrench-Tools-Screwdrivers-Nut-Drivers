@@ -98,4 +98,4 @@ Electrician Scissors, Screwdrivers & Nut Drivers, and Wrench Tools all play esse
 Relying on durable, precision engineered hand tools improves workflow, boosts productivity, and ensures that every installation or repair meets the highest standards of quality.
 Upgrade your professional toolkit with premium quality hand tools built for accuracy and long lasting performance.
 
-Explore Jonard's collection of Electrician Scissors, Screwdrivers & Nut Drivers, and [Wrench tools](https://jonard.com/hand-tools/wrenches) to work smarter and achieve professional results every day.
+Explore Jonard's collection of Electrician Scissors, Screwdrivers & Nut Drivers, and [jonard adjustable wrench tools](https://jonard.com/hand-tools/wrenches) to work smarter and achieve professional results every day.
